@@ -8,8 +8,8 @@ Meu nome é Pedro Amaral
 
 ### Você pode entrar em contato comigo :mailbox
 
-paludettomarcelo@gmail.com
+amaral.souza.pedro@escola.pr.gov.br
 
-@marcelopaludetto
+@srsinhoblack
 
 ![](https://media1.tenor.com/m/xPtsfNTMMkMAAAAC/happy-thresh-dancing.gif)
